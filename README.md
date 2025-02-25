@@ -20,7 +20,7 @@ This video, uploaded by Michael Glenn, provides a tour of his online Bujinkan tr
 
 **Overall Impression:**
 
-The Rojodojo.com website, as presented in this video, appears to be a valuable resource for Bujinkan practitioners of all levels. Michael Glenn's passion for the art and dedication to providing in-depth instruction are evident. The combination of videos, training notes, philosophical articles, and a user-friendly interface creates a comprehensive learning environment. The flexible membership model and personal connection further enhance the platform's appeal.
+The https://www.Rojodojo.com website, as presented in this video, appears to be a valuable resource for Bujinkan practitioners of all levels. Michael Glenn's passion for the art and dedication to providing in-depth instruction are evident. The combination of videos, training notes, philosophical articles, and a user-friendly interface creates a comprehensive learning environment. The flexible membership model and personal connection further enhance the platform's appeal.
 
 **Who is it for?**
 
@@ -35,7 +35,7 @@ The Rojodojo.com website, as presented in this video, appears to be a valuable r
 
 **Rating:**
 
-Given the content described in the video, Rojodojo.com appears to be a high-quality resource. A hands-on review of the current website would be necessary to provide a definitive rating, but based on the information presented, it seems like a solid offering for the Bujinkan community.
+Given the content described in the video, https://www.Rojodojo.com appears to be a high-quality resource. A hands-on review of the current website would be necessary to provide a definitive rating, but based on the information presented, it seems like a solid offering for the Bujinkan community.
 
 **Backlink Opportunities:**
 
